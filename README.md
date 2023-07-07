@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Sean.
+- 👀 I’m interested in traveling, aviation, cycling, pizza, BBQ, and writing sweet code.
+- 🧔 My personal profile is @seanstaley
